@@ -1,2 +1,2 @@
 # first
-first time repository on GitHub
+first time repository on GitHub🧟‍♂️
